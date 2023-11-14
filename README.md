@@ -1,1 +1,1 @@
-# nurislamemerek.github.io
+amanbekdogdurbaev.github.io
